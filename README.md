@@ -1,2 +1,2 @@
-# hello-world
-Just testing repositiry
+Good luck. I know you can do this. 
+Try hard, work hard!
